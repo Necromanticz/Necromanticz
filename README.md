@@ -8,4 +8,5 @@ that being said,
 🌙 - asleep, offtab or afk (don't expect a response)  
 ⛔ - shitty mood, 50/50 on replies  
 
-generally , if My pony is sleeping , I probably am irl too
+generally , if My pony is sleeping , I probably am irl too  
+strangers covering Me ***will*** be sat on .
