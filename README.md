@@ -9,4 +9,5 @@ that being said,
 ⛔ - not in a talkative mood, 50/50 on whether I reply or not  
 
 generally , if My pony is sleeping , I probably am irl too  
-strangers covering Me ***will*** be sat on .
+strangers covering Me ***will*** be sat on .  
+# BUILD LIMIT WHISPERS = INSTABLOCK
