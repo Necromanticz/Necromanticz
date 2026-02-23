@@ -11,6 +11,6 @@ that being said,
 ⛔ - not in a talkative mood, 50/50 on whether I reply or not. you can still sit w/ Me though  
 generally , if My pony is sleeping , I probably am irl too  
   
-I'm working on a better sp I promise 
+I can be very skittish . don't take it personally if I leave or walk away suddenly .  
   
 # ISLAND BUILD LIMIT WHISPERS = INSTABLOCK
