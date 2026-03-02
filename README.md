@@ -1,4 +1,4 @@
-Aorta or Syn if you wanna . chronic offtabber . I'll be moving around the map fairly often    
+Aorta or Syn if you wanna . chronic offtabber . I'll be moving around the map fairly often but tend to stay in populated areas    
 friends please don't purposely sexualise Leon in front of Me , thanks.  
   
 hypersharing yume !! **familial** for Leon Kennedy , **queerplatonic** for Infected/Kasper    
