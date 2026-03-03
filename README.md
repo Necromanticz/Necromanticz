@@ -10,7 +10,7 @@ I do **not** have a typing indicator outside of whispers and party chat !!
 generally , if My pony is sleeping , I am irl too !! *I'll read whispers when I wake up :]*  
   
 I'm a skittish creature !! big fan of blocking ponies that make Me uncomfortable    
-I'm distant at first n very focused on my f/os , it's not a sign of Me disliking you I promise . I'm just shy  
+I'm distant at first n very focused on My f/os , it's not a sign of Me disliking you I promise . I'm just shy  
 
 ### [pronouns.cc](https://pronouns.cc/@necromanticz) | [straw](https://gorefrot.straw.page/) | [tumblr](https://www.tumblr.com/gorefrot) | [older straw](https://necromanticz.straw.page/)
 # ISLAND BUILD LIMIT WHISPERS = INSTABLOCK
